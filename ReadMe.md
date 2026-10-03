@@ -1,5 +1,5 @@
 # 💫 About Me ( về tôi) :
-I am currently a student, and I would like to learn more about programming languages<br>Fun fact : I can't sleep without something to hug, too clingy<br>Contact me for work : zencn03@gmai.com or biprozm@gmail.com
+I am currently a student, and I would like to learn more about programming languages<br>Contact me for work : zencn03@gmai.com or lewclumsy@gmail.com
 
 
 ## Socials (Mxh):
